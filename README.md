@@ -2,7 +2,7 @@
 
 ## Link (Google Drive)
 
-[Download](https://drive.google.com/drive/folders/0B2d6JzJ8fiXvfmgtQnZkT2wzVEhza0VyeFJmZDNUT3hxaTkwcDVCNFJqMlIzeVJpWGhfM28)
+[Download](https://drive.google.com/folderview?id=0B2d6JzJ8fiXvfmgtQnZkT2wzVEhza0VyeFJmZDNUT3hxaTkwcDVCNFJqMlIzeVJpWGhfM28&usp=drive_web#list)
 
 
 Description:
